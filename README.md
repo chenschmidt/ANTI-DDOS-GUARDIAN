@@ -13,3 +13,9 @@ ANTI DDoS LAYER 4 AND LAYER 7
 
 PAID TOOL
 CRACKED BY DeveloperChen
+
+Required OS
+Windows 10 RDP
+
+Contact Me on Discord
+Discord:Chen#2721
